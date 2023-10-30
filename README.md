@@ -1,0 +1,1 @@
+# nesne_takibi_yeni_baslayanlar_icin_temel
